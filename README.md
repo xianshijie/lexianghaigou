@@ -9,3 +9,7 @@ Huang Laowu peanut sugar crisp color natural, crisp and refreshing, low sugar, s
 Love snacks---- enjoy the purchase
 
 If you have any questions about this app, please contact: sylvananebergall@gmail.com
+
+![image](https://github.com/xianshijie/lexianghaigou/blob/master/%E5%9B%BE%E5%83%8F/%E7%94%BB%E6%9D%BF%201.png)
+![image](https://github.com/xianshijie/lexianghaigou/blob/master/%E5%9B%BE%E5%83%8F/%E7%94%BB%E6%9D%BF%202.png)
+![image](https://github.com/xianshijie/lexianghaigou/blob/master/%E5%9B%BE%E5%83%8F/%E7%94%BB%E6%9D%BF%203.png)
